@@ -38,8 +38,6 @@ Follow these steps to get started with the Women Safety App:
 
 ## Support and Feedback
 
-For any questions, concerns, or feedback, please contact our support team at fahad.islam196@gmail.com
-
 Your safety is our priority, and we are continuously working to improve the Women Safety App to better serve your needs.
 
 Stay safe and empowered with the Women Safety App!
